@@ -17,7 +17,7 @@
 - ✅ **Former Intern** at 10Pearls · Shine Internship Program, Cohort 8
 - 🤖 Currently **learning AI/ML** and applying it to real-world projects
 - 📍 Based in **Hyderabad, Sindh, Pakistan**
-- 📫 Reach me: **[basitforgenp786@gmail.com]** · [LinkedIn](https://www.linkedin.com/in/abdul-basit0778652a4 )
+- 📫 Reach me: **basitforgenp786@gmail.com** · [LinkedIn](https://www.linkedin.com/in/abdul-basit0778652a4 )
 
 ---
 
